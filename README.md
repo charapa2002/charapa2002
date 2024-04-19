@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @charapa2002
 - 👀 I’m interested in  aprender cosas nuevas
-- 🌱 I’m currently learning proramas nuevos
+- 🌱 I’m currently learning programas nuevos
 - 💞️ I’m looking to collaborate on la sociedad
 - 📫 How to reach me @kastelalva
 - 😄 Pronouns: charapita
